@@ -1,3 +1,3 @@
-Vlad Love Garlic
+Vlad ❤️ Garlic
 
 Game made with Pyxel.
